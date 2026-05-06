@@ -1,0 +1,1 @@
+# Rivals-script-made-by-whatsthatcyan
